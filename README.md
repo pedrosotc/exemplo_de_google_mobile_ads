@@ -1,0 +1,1 @@
+# exemplo_de_google_mobile_ads
